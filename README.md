@@ -1,2 +1,2 @@
 # Moi Sanju
-[Click Here Budhhuuu](https://oxynotop.github.io/birthday8/)
+[Click Here Laddu](https://Oxyy69.github.io/BirthdaySanju8/)
